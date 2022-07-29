@@ -9,4 +9,12 @@ git commands
 
 			             git status 
 
-				                
+				               
+				thank you :) 
+		rewanthsaai 
+	
+
+final copy 
+
+
+          
